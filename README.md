@@ -1,2 +1,0 @@
-# nederlands-slachtvee
-zorg patienten 
